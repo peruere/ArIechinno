@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-,◜<img src="https://files.catbox.moe/tin9pf.gif"/> Mello . Arlecchino 
+,◜<img src="https://files.catbox.moe/tin9pf.gif"/> Scara . Lovell 
 </br>
 †𝅄 — he him <img src="https://files.catbox.moe/miodgz.gif"/>
 </p>
